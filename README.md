@@ -1,3 +1,4 @@
+Memórias de Bebedouro
 
 Fragmentos das memórias de Bebedouro se revelam em imagens, nos transportam a períodos remotos do cotidiano e narram a história do lugar. O antigo Porto de Bebedouro e a ponte sobre o Riacho do Silva, usados para o embarque e desembarque de mercadorias, eram também locais de descanso para tropeiros e viajantes, que ali saciavam a sede e banhavam seus animais — dando origem ao nome do bairro.
 
