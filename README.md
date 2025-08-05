@@ -3,6 +3,7 @@ Memórias de Bebedouro
 Fragmentos das memórias de Bebedouro se revelam em imagens, nos transportam a períodos remotos do cotidiano e narram a história do lugar. O antigo Porto de Bebedouro e a ponte sobre o Riacho do Silva, usados para o embarque e desembarque de mercadorias, eram também locais de descanso para tropeiros e viajantes, que ali saciavam a sede e banhavam seus animais — dando origem ao nome do bairro.
 
 Logo adiante, a Estação Ferroviária integra Bebedouro a outras regiões da cidade. A cada apito do trem, encontros e partidas se repetem, levando moradores aos seus destinos e trazendo-os de volta para casa ao final do dia.
+
 No alto, na Ladeira Professor Benedito Silva, está a Igreja de Nossa Senhora da Conceição, referência religiosa para Chã de Bebedouro. Nesse mesmo arruado, casarios de personalidades marcantes, como a família de Nise da Silveira, desenham a paisagem.
 
 Mas é no início dessa ladeira, no cruzamento de vias, que um palacete de feições ecléticas, com cercaduras, cimalhas, adornos arquitetônicos e uma balaustrada que o cerca, ganha destaque na paisagem. Possivelmente construído em 1833 — data inscrita em duas de suas fachadas —, já foi a Casa Paroquial do Padre Fernando Iório, e, posteriormente, um colégio, que influenciou na formação educacional de gerações.
